@@ -6,5 +6,9 @@ This repository will benefit you if you're an orphan or there is an issue inside
 
 ***
 
+[Be strong independet to avoid being a whore as this example](https://youtu.be/Q-sZfbUcDoA)
+
+***
+
 ![1676226133980](https://user-images.githubusercontent.com/17825804/218330981-5ca9aab6-45b7-4fc2-81df-552c52added2.png)
 
