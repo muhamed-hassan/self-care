@@ -6,7 +6,7 @@ This repository will benefit you if you're an orphan or there is an issue inside
 
 ***
 
-[Be strong independet to avoid being a whore as this example](https://youtu.be/Q-sZfbUcDoA):
+Be [strong independet](https://youtu.be/K6jhuBvw8QE) to avoid being[ a whore as this example](https://youtu.be/Q-sZfbUcDoA):
 * [Item 0](https://youtu.be/WM3AElFzytM)
 * [Item 1](https://youtu.be/3F4aOW9jIe8)
 
