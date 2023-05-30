@@ -1,3 +1,8 @@
+![dothings](https://github.com/muhamed-hassan/self-care/assets/17825804/8421c184-dec0-40ea-8ccc-17b805835b66)
+
+***
+***
+
 #### Please visit the wiki for more info https://github.com/muhamed-hassan/self-care/wiki
 
 ***
