@@ -1,3 +1,5 @@
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 36 ) Worship Allah and associate nothing with Him, and to parents do good, and to relatives, orphans, the needy, the near neighbor, the neighbor farther away, the companion at your side, the traveler, and those whom your right hands possess. Indeed, Allah does not like those who are self-deluding and boastful.` [Sura An-Nisaa - Aya 36]
+
 ![dothings](https://github.com/muhamed-hassan/self-care/assets/17825804/8421c184-dec0-40ea-8ccc-17b805835b66)
 
 ***
